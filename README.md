@@ -11,3 +11,8 @@ Vous pouvez visité via le lien : https://cinematch-tp1-hrx8vkxca8byvoymdzawhc.s
 
 <img width="1918" height="922" alt="image" src="https://github.com/user-attachments/assets/5e81fd1e-4a2e-4273-96ad-300a15b98677" />
 
+<img width="1918" height="918" alt="image" src="https://github.com/user-attachments/assets/608715d4-02e1-4701-9383-3df062de0d23" />
+
+<img width="1918" height="911" alt="image" src="https://github.com/user-attachments/assets/ebaa6eb8-a257-42f2-b637-c48d46e8a28d" />
+
+
